@@ -1,3 +1,1 @@
-# TOOL
-Tools Ancient One
-cari tau sendiri
+how about that? find out yourself
