@@ -1,1 +1,2 @@
-how about that? find out yourself
+Bagaimana caranya? 
+silahkan cari tahu sendiri
